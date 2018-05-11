@@ -3,7 +3,7 @@ It's happy to see you!
 Please feel free to communicate with me!
 
 ## how to find me?
-* You can find my github page **[here](https://turnsoleeattiger.github.io/)** to view my new post!
+* You can find my github page **[here](https://turnsoleeattiger.github.io/Jelly.github.io/)** to view my latast post!
 * you can also find my instergram **[here](https://www.instagram.com/turnsoleeattiger/)** to get more information.
 
 ## here are some of my information:
